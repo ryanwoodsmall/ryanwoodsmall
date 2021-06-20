@@ -1,1 +1,1 @@
-got diarrhea
+i got diarrhea?
